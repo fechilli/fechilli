@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Luiz Felipe - Fechilli 😁
+## Bem-vindo(a) ao perfil do Luiz Felipe - Fechilli 🏳️‍🌈🧔🏿‍♂️
 
  <div>
    <a href="https://github.com/fechilli">
